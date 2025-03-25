@@ -1,1 +1,1 @@
-# Some books interesting to myself
+# Books interesting to myself
